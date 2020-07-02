@@ -9,3 +9,8 @@ Alec Guinness was an English actor. He is known for his six collaborations with 
 * Steak
 * Hammock
 * German Sausage
+
+
+Alec sagt:
+
+> Möge die Macht mit Dir sein!
